@@ -1,4 +1,4 @@
-Hi bro 👋
+Hi bro 👋.
 I am h3x4d3c1m4l,
 Remember it well, because it will serve you well.
 
